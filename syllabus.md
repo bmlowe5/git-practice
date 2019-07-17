@@ -11,5 +11,7 @@
 
 I learned about books from this website, [Washington State University, English Dept](https://catalog.wsu.edu/Pullman/Academics/Courses/ENGLISH)
 
-<p>Definition of literature: written works, especially those considered of superior or lasting artistic merit.</P>
+<p><b>Definition of literature</b>: <i>written works, especially those considered of superior or lasting artistic merit.</i></P>
 
+**Meets Mondays at 1pm...**
+*but this is not a real class, so don't show up*
